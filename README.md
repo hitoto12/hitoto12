@@ -7,7 +7,8 @@ Olá, sou Cesar Wellington, tudo na paz ?
 - Facebook - https://www.facebook.com/cesar.wellington.73/
 - Linkedin - https://www.linkedin.com/in/cesar-wellington-dos-santos-nunes-3b5280219/
 - Instagram - https://www.instagram.com/_cesarwe/
-- E-mail - Cesar_totoo@hotmail.com
+- E-mail - Cesar_totoo@hotmail.com - cesar_wellington@hotmail.com
+  
 
 <!---
 hitoto12/hitoto12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
